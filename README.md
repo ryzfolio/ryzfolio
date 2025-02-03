@@ -22,7 +22,7 @@
 ![OBS](https://img.shields.io/badge/OBS-302E31?style=for-the-badge&logo=obsstudio&logoColor=white)  
 
 📫 **Let's Connect!**  
-- ✉️ Email: [2014070377@student.pppkpetra](mailto:2014070377@student.pppkpetra)  
+- ✉️ Email: [enstentik112@gmail.com](mailto:enstentik112@gmail.com)  
 - 📱 WhatsApp: [081232322106](https://wa.me/6281232322106)  
 - 🌐 Portfolio (Coming Soon!)  
 
